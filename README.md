@@ -1,1 +1,0 @@
-# ltadevosyan.github.io-Carousel
